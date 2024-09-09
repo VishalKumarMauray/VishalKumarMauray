@@ -25,8 +25,8 @@ I’m a passionate mobile app developer specializing in creating high-quality ap
 ## 📫 How to Reach Me
 
 - **Email**: [vishalmauray18@gmail.com](mailto:vishalmauray18@gmail.com)
-- **LinkedIn**: [LinkedIn Profile](https://www.linkedin.com/mwlite/profile/me?trk=p_mwlite_feed-secondary_nav)
-- **Instagram**: [@mauray_deep](https://www.instagram.com/mauray_deep/?hl=en)
+- **LinkedIn**: [Vishal kumar mauray](https://www.linkedin.com/mwlite/profile/me?trk=p_mwlite_feed-secondary_nav)
+- **Instagram**: [mauray_deep](https://www.instagram.com/mauray_deep/?hl=en)
 
 ---
 
